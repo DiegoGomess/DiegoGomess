@@ -1,4 +1,4 @@
 - Oi! Eu sou o Diego Gomes! 😃
 - Atualmente estou cursando o último período de Sistemas de Informação. 🙌
 - Trabalho com manutenção de impressoras de grande formato. ✔
-- Não tenho experiência com programação, mas futuramente vou investir mais nessa área. 👀
+- Não tenho experiência com programação, mas futuramente vou investir nessa área. 👀
